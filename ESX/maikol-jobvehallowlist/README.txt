@@ -13,3 +13,11 @@ My Discord Server - maikolscripts.com/discord
 Other Releases
 Car Repo Job - https://www.maikolscripts.com/package/5366594
 Gun Jamming Script - https://www.maikolscripts.com/package/5351381
+admin
+police
+feuerwer
+amr
+mechnika
+cardiler
+dev
+supoter
